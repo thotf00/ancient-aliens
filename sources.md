@@ -1,9 +1,5 @@
 ## **Section 1: The Aquatic Intelligences - Expanded Narrative**
 
-The consistent global motif of aquatic, intelligent beings suggests a profound and ancient interaction with a civilization adapted to Earth's hydrosphere. Unlike visitors who came and went, these entities are intrinsically linked to water, presenting a narrative not just of contact, but of shared origins, tutelage, and a possible enduring presence within the planet's vast, uncharted oceans and waterways. Their agenda appears to be one of terraforming, ecological monitoring, and establishing a permanent, submerged foothold on Earth.
-
----
-
 #### **1. Nommo (Dogon, Mali)**
 
 **The Complete Story:**
